@@ -1,1 +1,1 @@
-i think right
+am think right
